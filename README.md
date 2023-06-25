@@ -1,1 +1,0 @@
-# delovayaSredaTest
